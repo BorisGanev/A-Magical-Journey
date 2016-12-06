@@ -1,4 +1,4 @@
-# Channel Info (つ -‘ _ ‘- )つ:
+# A Magical Journey Room Info (つ -‘ _ ‘- )つ:
 												
 **Aloha! Welcome to A Magical Journey!**
 
